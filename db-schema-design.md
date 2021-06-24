@@ -1,4 +1,5 @@
-#👋🏾👋🏾👋🏾
+👋🏾👋🏾👋🏾
+
 #Hello there! Today's lesson is in regard to....
 🥁 (cue the drumroll.... )
 
